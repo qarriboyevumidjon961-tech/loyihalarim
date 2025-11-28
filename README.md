@@ -1,0 +1,2 @@
+# loyihalarim
+loyiha ishi
